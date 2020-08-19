@@ -1,1 +1,1 @@
-[UB][www.ub.unibe.ch]
+[UB(www.ub.unibe.ch)
